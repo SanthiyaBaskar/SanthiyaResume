@@ -10,5 +10,4 @@ Feel free to download, review, or share — and don’t hesitate to connect with
 - **Email**: ssandhiya252@gmail.com  
 - **LinkedIn**: [linkedin.com/in/santhiya-baskar-675a85258](https://www.linkedin.com/in/santhiya-baskar-675a85258)  
 - **GitHub**: [github.com/SanthiyaBaskar](https://github.com/SanthiyaBaskar)  
-- **Portfolio**: [github.com/SanthiyaBaskar/portfolio](https://github.com/SanthiyaBaskar/portfolio)  
 - **GUVI**: [guvi.in/ssandhiya25241516](https://www.guvi.in/ssandhiya25241516)
